@@ -42,4 +42,4 @@ Desenvolver habilidades em desenvolvimento de software e inteligência artificia
 ---
 
 📬 **Vamos nos conectar?**  
-[LinkedIn](https://www.linkedin.com/in/halomasouza) | [Behance](https://www.behance.net/halomavianna) | WhatsApp: (83) 2177-1765
+[LinkedIn](https://www.linkedin.com/in/halomasouza) | [Behance](https://www.behance.net/halomavianna)
